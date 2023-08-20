@@ -2,7 +2,7 @@
 - 👀 I’m interested in basketball, calisthenics + gym, developing
 - 🌱 I’m currently learning developing
 - 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me +998990777467
+- 📫 How to reach me +998990774767
 
 
 <!---
